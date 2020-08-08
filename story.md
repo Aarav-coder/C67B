@@ -1,1 +1,2 @@
 Once upon a time. There was a Berry tree on the banks of a river and a monkey lived on it. The monkey was very clever but he was very good at heart. The tree used to have very sweet and juicy berries, after which the monkey was living his life.
+A crocodile also lived in the river. One day the crocodile reached the banks of the river in search of food. Seeing the crocodile, the monkey asked him, “Who are you and where do you live?” The crocodile replied, “I am a crocodile and I live across the river.”
