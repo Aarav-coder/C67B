@@ -1,0 +1,1 @@
+Once upon a time. There was a Berry tree on the banks of a river and a monkey lived on it. The monkey was very clever but he was very good at heart. The tree used to have very sweet and juicy berries, after which the monkey was living his life.
